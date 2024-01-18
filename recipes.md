@@ -113,3 +113,19 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Oreo Milk Shake
+
+Ingredients:
+6 OREO Cookies, divided
+1 Tbsp (15 mL) chocolate syrup
+1-1/4 (300 mL) cups milk
+2-1/2 cups (625 mL) vanilla ice cream, softened
+1/4 cup (60 mL) whipped cream
+
+Instructions:
+1. Cut 1 cookie into quarters; reserve for garnish. Chop 4 of the remaining cookies; set aside. ​
+2. Crush the remaining cookie into fine crumbs; pour into shallow dish. Brush rims of 4 (8-oz./250 mL) glasses lightly with chocolate syrup. ​
+3. Dip tops of glasses, one at a time, into cookie crumbs, turning to evenly coat each rim with crumbs.​
+4. Blend milk and ice cream in blender until smooth. Add chopped cookies; pulse just until blended. Pour into prepared glasses. ​
+5. Top with whipped cream and reserved quartered cookie pieces.
